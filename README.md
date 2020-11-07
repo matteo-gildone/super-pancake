@@ -1,1 +1,1 @@
-# super-pancake
+# Super Pancake
